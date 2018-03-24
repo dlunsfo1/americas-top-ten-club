@@ -19,6 +19,6 @@ If creating an account in not your thing you will still enjoy the benefits of us
 * Get directions
 * Find out which restaurants are trendiing
 
-### "Yout next Top Ten dining experience is now at your fingertips...our old-school philospophy has come to the digital age..."
+### "Your next Top Ten dining experience is now at your fingertips...our old-school philospophy has come to the digital age..."
 
 If you have been to one of **America's Top Ten Club** rated restaurants or read it about it online, now you can have instant access to plan, reserve and track your experiences. Get started today at ...
