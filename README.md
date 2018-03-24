@@ -1,4 +1,4 @@
-# Americas Top Ten Club
+# America's Top Ten Club
 America's authority on Independent Dining Establishments
 
 Looking for a premier dining experience? Why not have it at one of America's top restuarants. Whether you're looking for Steak, Seafood or even an Irish establishment America's Top Ten club allow you to rate, review and find the closest Top dining experience. Users can keep track of their dining expereinces and become and receieve specail benefits along the way. You can build your profile, so the next time you're ready for Top Dining experience you'll be ready. 
@@ -21,4 +21,4 @@ If creating an account in not your thing you will still enjoy the benefits of us
 
 ### "Yout next Top Ten dining experience is now at your fingertips...our old-school philospophy has come to the digital age..."
 
-You have perhaps been to one of **America's Top Ten Club** rated restaurants or read it about it online, now you can have instant access to plan, reserve and track your experiences. Get started today at ...
+If you have been to one of **America's Top Ten Club** rated restaurants or read it about it online, now you can have instant access to plan, reserve and track your experiences. Get started today at ...
